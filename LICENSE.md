@@ -1,4 +1,4 @@
-#  
+#  fisch it smart Scripts offers the most advanced fisch it Script, with one-hit kill and fly. Perfect for dominating any match.
 
 
 
